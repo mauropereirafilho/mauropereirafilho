@@ -6,7 +6,7 @@ O que me empolga no DevOps é a possibilidade de trabalhar com infraestruturas c
 
 Durante meu tempo livre, gosto de estar em constante aprendizado, seja aprendendo uma nova ferramenta, ou colocando em prática certos conhecimentos. Também gosto muito de ir à academia, assistir netflix, jogar e passar tempo com meus entes queridos.
 
-Este é meu LinkEdin, fiquem a vontade para realizarmos Networking.
+Este é meu LinkedIn, fiquem a vontade para realizarmos Networking.
 
 **- [LinkedIn](https://www.linkedin.com/in/mauropereirafilho)**
 
