@@ -8,7 +8,7 @@ Durante meu tempo livre, gosto de estar em constante aprendizado, seja aprendend
 
 Este é meu LinkEdin, fiquem a vontade para realizarmos Networking.
 
-- [LinkedIn](https://www.linkedin.com/in/mauropereirafilho)**
+**- [LinkedIn](https://www.linkedin.com/in/mauropereirafilho)**
 
 
 
